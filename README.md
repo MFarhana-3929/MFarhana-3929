@@ -47,6 +47,4 @@ Building strong foundations today to work on real-world security and technology 
 - **Email:** [mfarhana3929@gmail.com](mailto:mfarhana3929@gmail.com)
 
 
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
